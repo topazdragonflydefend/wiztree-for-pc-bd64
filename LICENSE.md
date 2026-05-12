@@ -1,4 +1,4 @@
-# 
+# Enhance WizTree for PC | WizTree for Windows with WizTree for PC | WizTree for Windows best Extension: custom-columns & folder-scanning, the #1 extension. Includes custom-columns
 
 
 
